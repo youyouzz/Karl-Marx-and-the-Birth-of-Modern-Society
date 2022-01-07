@@ -1,3 +1,3 @@
 
-## MARX’S LIFE IN BERLIN, 1838–41
+## Marx’s Life In Berlin, 1838–41
 
